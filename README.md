@@ -1,0 +1,1 @@
+# KMHS-astronomyclub
